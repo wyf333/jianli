@@ -1,3 +1,3 @@
 # jianli
 简历
-Jieke is my name and Watermalons are my love;
+Jieke is my name and Watermelons are my love;
